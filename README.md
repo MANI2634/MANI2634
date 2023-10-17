@@ -1,5 +1,9 @@
-### Hi there 👋
-I am Manikandan
+hey! there 👋
+*I am Manikandan
+*Currently I am a final year student at Alagappa University 
+*I am interested in Coding👨🏻‍💻
+📫 How to reach me: manikandan126032004@gmail.com
+
 
 
 
